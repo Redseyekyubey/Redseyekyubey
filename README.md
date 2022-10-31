@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Redseyekyubey
+- 👀 I’m interested in JS . SQL .COTIN
+- 🌱 I’m currently learning SAME 
+- 📫 How to reach me felipexlr4@gmail.com
